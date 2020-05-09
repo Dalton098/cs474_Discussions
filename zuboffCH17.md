@@ -1,0 +1,7 @@
+“There was an exit from totalizing power, and that exit was the entrance to a sanctuary in the form of a city, a community, or a temple.”
+
+Zuboff focuses on the power of having a sanctuary to escape to so that one can free themselves from power. The problem with Big Other is that their power is capable of passing the boundary and enter into our sanctuary. Smart cameras, phones, lights, speakers, etc. They are all ways Big Other is able to slip into our sanctuary. We are getting to the point where we cannot have a sanctuary anymore. We no longer have privacy within our own homes, our homes have been invaded by Big Other.
+
+“In the context of government surveillance, the practices of “hiding” have been called “privacy protests” and are well-known for drawing the suspicion of law-enforcement agencies.”
+
+One thing that stood out from this quote was the fact that hiding was seen as a protest. In reality hiding was just a person’s desire for privacy. The problem is if you seem to be hiding people assume you are guilty of something and as a result draw suspicion about yourself. The amount of information available to other people about us who do not even know us is incredible. The reason people want to hide is because they want to have a sense of security back. Everyone keeps secrets but the individual should be allowed to choose who they trust to tell their secrets to.
